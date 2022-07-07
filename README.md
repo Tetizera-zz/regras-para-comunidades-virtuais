@@ -1,0 +1,1 @@
+TBD. Repo para auxiliar comunidades virtuais com regras, etiqueta, e outras coisas relacionadas à comunidades virtuais. Tentarei levar em conta as experiências pessoais, de comunidades brasileiras em outras redes, gringos, e até linkar algumas pesquisas acadêmicas.
